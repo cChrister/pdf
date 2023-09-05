@@ -8,3 +8,6 @@
 
 [深度工作](https://pan.baidu.com/s/18hrjwonFUDYFVLW8NxVEVw?pwd=s99m) 
 
+[Linux系统管理](https://pan.baidu.com/s/1wM1rN6izAC2BI5epu9aa6g?pwd=gc6q) 
+
+[Linux实用教程第三版](https://pan.baidu.com/s/1pLgfuex4Wn2ONZW5igX0Ow?pwd=uvqc)
